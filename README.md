@@ -1,0 +1,2 @@
+<!-- Here will go my reflection on my first top assignment, the odin-recipes website.>
+<!-- I was actually pleasantly surprised how much I was looking forward to start doing the projects and how naturally it came. It shows that I was worth spending the time to go after my curiosity and thoroughly go over the resources provided by top, because this meant that all that was asked was executed easily in the best way.>
